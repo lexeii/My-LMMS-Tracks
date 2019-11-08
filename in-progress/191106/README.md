@@ -20,4 +20,4 @@ Track list:
   9. sf2: [Westgate Studios All percussion](https://www.newgrounds.com/bbs/topic/1200140/1) › `Percussion part 2.rar`
   10. sf2: [Westgate Studios All percussion](https://www.newgrounds.com/bbs/topic/1200140/1) › `Percussion part 2.rar`
 
-![Cover art](191106/Dragon's%20Lullaby.jpg)
+![Cover art](Dragon's%20Lullaby.jpg)
